@@ -1,3 +1,7 @@
+Gary is waiting for you to upload the homework~~~~~~~~~~~~
+
+
+
 # ME 701 -- Homework 2
 
 Please read the directions for each exercise carefully.
